@@ -1,3 +1,2 @@
 # casimiro.com.br
-temporario
-<img src="placa1.jpg">
+Contato: 88 988270456
