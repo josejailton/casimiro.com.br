@@ -1,2 +1,2 @@
 # casimiro.com.br
-Contato: 88 988270456
+Vende-se ou Aluga-se este dominio
